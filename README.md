@@ -1,2 +1,2 @@
 # RajwardhanShinde.github.io
-Thank You @Onkar Dherange
+Thank You @OnkarDherange
